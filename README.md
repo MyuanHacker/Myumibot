@@ -1,2 +1,2 @@
 # Myumibot
-shoti-1h707d9l70cquq2j08g
+A good writer possesses not only his own spirit but also the spirit of his friends.
